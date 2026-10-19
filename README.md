@@ -1,0 +1,2 @@
+# premium-make-ready-001-make-ready-impression-depth-pa
+Stop losing security deposits to unfair carpet claims. The Make Ready Impression Depth Packing Record transforms subjective 'normal wear' debates into objective, measurable data—so you have proof of condition before and after each tenancy.  This template systematically records carpet impression depths at move-in and move-out, creating an indisputab
